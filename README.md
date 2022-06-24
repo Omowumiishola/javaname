@@ -1,1 +1,1 @@
-https://omowumiishola.github.io/javaname/
+Published page: https://omowumiishola.github.io/javaname/
